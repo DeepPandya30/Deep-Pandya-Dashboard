@@ -51,7 +51,7 @@
 
  # 🌐 Let's connect!
 
-📧 Email: [palakbera2281@gmail.com](mailto:palakbera2281@gmail.com)
+📧 Email: [dk2002pandya@gmail.com](mailto:dk2002pandya@gmail.com)
 
 💼 LinkedIn: [Palak-Bera](https://www.linkedin.com/in/palak-bera/)
 
